@@ -28,7 +28,7 @@
 ## 📫 Let's Connect
 
 - 🌐 [LinkedIn](https://www.linkedin.com/in/jeffrey-john-kennedy-0564001ba/)
-- 📧 Email: jjohnken@asu.edu
+- 📧 Email: jeffreysajjlins@gmail.com
 - 📍 Tempe, Arizona
 
 ---
